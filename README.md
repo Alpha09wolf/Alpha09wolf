@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alpha09wolf
+- 👀 I’m interested in learning code
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on as many projects as I can, to both learn and hopefully provide helpful, real-world applications
+- 📫 How to reach me: Whatsapp +27 067 204 2327, email: alpha0she9wolf@gmail.com
